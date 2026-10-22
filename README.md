@@ -1,0 +1,1 @@
+# qr-template-all-img-tope-nto-tpyg-hg-tfsd-hsg-fdty-t-d-bhgkk-b-iy-
